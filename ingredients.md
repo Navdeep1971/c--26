@@ -1,0 +1,1 @@
+boiled potatoes, salt, chat masala, tomatoes, onions, butter, cheese, cucumber, bread.
